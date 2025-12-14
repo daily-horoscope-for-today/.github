@@ -7,6 +7,7 @@ Welcome to **TodayHoroscope.xyz**, your daily sanctuary for cosmic insight and m
 ### 📝 Start Your Cosmic Journey
 
 **Visit Now**: [Daily Horoscope Updates Here!](https://www.todayhoroscope.xyz/)
+**Join Whatsapp Channel**: [Today Horoscope Whatsapp Channel!]([https://www.todayhoroscope.xyz/](https://whatsapp.com/channel/0029Vb7eZaV2ER6bIv8zia38))
 
 Bookmark our site and make checking your daily horoscope part of your morning routine. Discover how aligning with the day's cosmic weather can bring more intention, awareness, and flow to your life.
 
